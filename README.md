@@ -21,6 +21,7 @@ I'm Samyak Gajghate, a first-year university student passionate about delving in
 
 ### Let’s Connect 📫
 •	Reach out to me on [LinkedIn](https://www.linkedin.com/in/samyak-gajghate-8bb51b291/) for collaboration👯 or networking opportunities
+
 •	 Follow me on Twitter to stay updated on my journey in the world of Computer Science and Engineering
 
 
